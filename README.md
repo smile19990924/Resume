@@ -1,7 +1,7 @@
 # 王怡涵(valerie)
 - 地址：天上
 - Email：valerie880924@gmail.com
-- 興趣：
+- 興趣：看書
 - 專長：
 - 語言能力：
 
